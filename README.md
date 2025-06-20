@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @galaxywrld aka Gloria
-- 🌱 I’m currently learning Info Security =) 
+- 🌱 I’m currently a 3rd year student for Info Security =) 
 - 💞️ I’m looking to gain more experience & connect with more ppl in the same field 
 
 <!---
